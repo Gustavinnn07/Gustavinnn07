@@ -18,6 +18,16 @@ a seleção nem neymar não é nada
 neymar jogou mais que o Ronaldinho gaúcho
 gostei de andar de jet-ski
 meu sonho é ser jogador se não der certo quero ser militar
+odeio estudar
+matemática depois de um tempo ficou chato
+depois que a escola virou militar nunca mais foi a mesma
+minha mãe e tudo para mim
+gosto da escola só para resenhar
+adoro jogar bola
+quero conhecer o neymar
+Pele morreu no meu aniversário
+me apaixonei por uma pessoa sem ter beijado ela é agora estamos quase namorando
+quero fazer academia mais não quero ir sozinho
 
 
 
