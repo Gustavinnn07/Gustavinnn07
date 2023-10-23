@@ -28,7 +28,11 @@ quero conhecer o neymar
 Pele morreu no meu aniversário
 me apaixonei por uma pessoa sem ter beijado ela é agora estamos quase namorando
 quero fazer academia mais não quero ir sozinho
-
+moro em Curitiba
+muito bem casado!!!
+gosto de cachorros
+gostei de assistir prison break
+gosto de filmes
 
 
 
